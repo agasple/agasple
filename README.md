@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me @gasparagg06 for email or on insta @zasple
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I was born in Chicago and Kanye West is the goat (except for the anti-semitism part)
+- ⚡ Fun fact: I was born in Chicago, and my favourite song is no.1 fan - by majesty crush 
 
 <!---
 agasple/agasple is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
